@@ -2,7 +2,7 @@
 
 Hi, I’m Chidera Ezeokoli — a writer, artist, and social problem-solver from Nigeria. I hold a degree in German Language & Literature from the University of Nigeria and am currently on academic exchange at Hokkaido University in Japan.
 
-As a former President of Students For Liberty at my university, I’ve led efforts to defend human dignity and promote social equity through grassroots organizing, digital campaigns, and public storytelling.  I’m also an alumnus of the African Liberty Writing Fellowship, and my work has been published in Sahara Reporters, African Liberty, Rational Standard, Modern Ghana, and on my Medium blog. I write about social justice, freedom, African governance, queer issues, and personal growth.
+As a former President of Students For Liberty at my university, I’ve led efforts to defend human dignity and promote social equity through grassroots organizing, digital campaigns, and public storytelling.  I’m also an alumnus of the African Liberty Writing Fellowship, and my work has been published in Sahara Reporters, African Liberty, Rational Standard, Modern Ghana, and on my Medium blog. I write about social justice, freedom, African governance, and personal growth.
 
 Outside advocacy and writing, I enjoy exploring my artistic side, creating content that inspires reflection, resistance, and reform.
 
